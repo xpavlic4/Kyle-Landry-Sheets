@@ -1,5 +1,5 @@
 # Kyle-Landry-Sheets
-Links to transcriptions of Kyle Landry's sheet music, currently hidden due to syntax changes in PHPBB. Translated into markdown.
+Download links to transcriptions of Kyle Landry's sheet music, currently hidden due to syntax changes in PHPBB. Translated into markdown.
 
 ---
 
@@ -152,18 +152,14 @@ Sheet | From | YouTube
 [We Are the Champions](http://www.mediafire.com/view/kkgu5iq5azq5f5c/Queen_-_We_Are_The_Champions_%28KL%29.pdf) | [Queen](http://en.wikipedia.org/wiki/Queen_%28band%29) | [YouTube](https://www.youtube.com/watch?v=rJf5xVZWxcQ)
 [Wedding Dress](http://www.mediafire.com/view/eeqggdcshxqvzz4/Wedding_Dress.pdf) | [Taeyang](http://en.wikipedia.org/wiki/Taeyang) | [YouTube](https://www.youtube.com/watch?v=CmhOlhF2X6s)
 [Across the Universe](http://www.mediafire.com/view/9nx89ch1lzja987/Beatles_-_Across_the_Universe.pdf) | [The Beatles](http://en.wikipedia.org/wiki/The_Beatles) | [YouTube](https://www.youtube.com/watch?v=kFsA_2Tfr-k)
-
-
-
-[b][u][size=150]Miscellaneous[/size][/u][/b]
-
-[url=http://www.mediafire.com/view/20n2wa3447s0mnn/I_Dreamed_a_Dream_-_Full_Score.pdf]I dreamed a dream[/url] - [url=http://en.wikipedia.org/wiki/Les_Mis%C3%A9rables_%28musical%29]Les Misérables[/url] - [url=https://www.youtube.com/watch?v=0Wlrv-Pc8ko]YouTube[/url]
-[url=http://www.mediafire.com/download/4j43a0s338e1hnh/GOT.zip]Game of thrones theme[/url] - [url=http://en.wikipedia.org/wiki/Game_of_Thrones]Game of thrones[/url] - [url=https://www.youtube.com/watch?v=1kBWtd4lujk]YouTube[/url]
-[url=http://www.mediafire.com/view/i3wakad0moy8cgo/KL_River_Flows_in_You.pdf]River Flows In You[/url] - [url=http://en.wikipedia.org/wiki/Yiruma]Yiruma[/url] - [url=https://www.youtube.com/watch?v=qFwWE_flqcI]YouTube[/url]
-[url=http://www.mediafire.com/view/fhd1bvui44z5xv7/KL_SKY_Forever.pdf]Forever[/url] - SKY - [url=https://www.youtube.com/watch?v=CsUu0qknxW8]YouTube[/url]
-[url=https://www.dropbox.com/sh/aljpy2c3dtchfw7/AADEPpgBQaRdO-w68aLnisuSa/Jingle%20Bells%20%26%20Sleigh%20Ride%20Medley.pdf?dl=0]Jingle Bells[/url] - [url=http://en.wikipedia.org/wiki/Sleigh_Ride]Sleigh Ride[/url] - [url=https://www.youtube.com/watch?v=pirei3xYidA]YouTube[/url]
-[url=https://www.dropbox.com/sh/aljpy2c3dtchfw7/AADmIg6kF9Wz2etf7TVnR-U1a/Joy%20to%20the%20World.pdf?dl=0]Joy To The World[/url] - [url=http://en.wikipedia.org/wiki/Joy_to_the_World]Traditional[/url] - [url=https://www.youtube.com/watch?v=pY7xGIGEch4]YouTube[/url]
-[url=http://www.mediafire.com/view/cyyr6m1kw4ob8mx/Silent_Night.pdf]Silent Night[/url] - [url=http://en.wikipedia.org/wiki/Franz_Xaver_Gruber]Franz Xaver Gruber[/url] - [url=https://www.youtube.com/watch?v=mOhuiezfxT4]YouTube[/url]
-[url=http://www.mediafire.com/view/z9jaict1lcz9f2u/Christmas_Carol_Medley.pdf]Christmas Carol Medley[/url] - [url=http://en.wikipedia.org/wiki/Christmas_music]Christmas music[/url] - [url=https://www.youtube.com/watch?v=pY7xGIGEch4]YouTube[/url]
-[url=http://www.mediafire.com/view/91mgaoznqj3l5jc/Christmas_Medley_Special.pdf]Christmas Medley Special 2009[/url] - [url=http://en.wikipedia.org/wiki/Christmas_music]Christmas music[/url] - [url=https://www.youtube.com/watch?v=GGBzsRFoCgA]YouTube[/url]
-[url=http://www.mediafire.com/view/c66b0gg9oznjr7a/Ave_Maria.pdf]Ave Maria[/url] - [url=http://en.wikipedia.org/wiki/Franz_Schubert]Franz Schubert[/url] - [url=https://www.youtube.com/watch?v=3yD3VDPvCj0]YouTube[/url]
+**Misc.** | |
+[I Dreamed a Dream](http://www.mediafire.com/view/20n2wa3447s0mnn/I_Dreamed_a_Dream_-_Full_Score.pdf) | [Les Misérables](http://en.wikipedia.org/wiki/Les_Mis%C3%A9rables_%28musical%29) | [YouTube](https://www.youtube.com/watch?v=0Wlrv-Pc8ko)
+[Game of Thrones Theme](http://www.mediafire.com/download/4j43a0s338e1hnh/GOT.zip) | [Game of Thrones](http://en.wikipedia.org/wiki/Game_of_Thrones) | [YouTube](https://www.youtube.com/watch?v=1kBWtd4lujk)
+[River Flows in You](http://www.mediafire.com/view/i3wakad0moy8cgo/KL_River_Flows_in_You.pdf) | [Yiruma](http://en.wikipedia.org/wiki/Yiruma) | [YouTube](https://www.youtube.com/watch?v=qFwWE_flqcI)
+[Forever](http://www.mediafire.com/view/fhd1bvui44z5xv7/KL_SKY_Forever.pdf) | [SKY]() | [YouTube](https://www.youtube.com/watch?v=CsUu0qknxW8)
+[Jingle Bells](https://www.dropbox.com/sh/aljpy2c3dtchfw7/AADEPpgBQaRdO-w68aLnisuSa/Jingle%20Bells%20%26%20Sleigh%20Ride%20Medley.pdf?dl=0) | [Sleigh Ride](http://en.wikipedia.org/wiki/Sleigh_Ride) | [YouTube](https://www.youtube.com/watch?v=pirei3xYidA)
+[Joy to the World](https://www.dropbox.com/sh/aljpy2c3dtchfw7/AADmIg6kF9Wz2etf7TVnR-U1a/Joy%20to%20the%20World.pdf?dl=0) | [Traditional](http://en.wikipedia.org/wiki/Joy_to_the_World) | [YouTube](https://www.youtube.com/watch?v=pY7xGIGEch4)
+[Silent Night](http://www.mediafire.com/view/cyyr6m1kw4ob8mx/Silent_Night.pdf) | [Franz Xaver Gruber](http://en.wikipedia.org/wiki/Franz_Xaver_Gruber) | [YouTube](https://www.youtube.com/watch?v=mOhuiezfxT4)
+[Christmas Carol Medley](http://www.mediafire.com/view/z9jaict1lcz9f2u/Christmas_Carol_Medley.pdf) | [Christmas Music](http://en.wikipedia.org/wiki/Christmas_music) | [YouTube](https://www.youtube.com/watch?v=pY7xGIGEch4)
+[Christmas Medley Special 2009](http://www.mediafire.com/view/91mgaoznqj3l5jc/Christmas_Medley_Special.pdf) | [Christmas Music](http://en.wikipedia.org/wiki/Christmas_music) | [YouTube](https://www.youtube.com/watch?v=GGBzsRFoCgA)
+[Ave Maria](http://www.mediafire.com/view/c66b0gg9oznjr7a/Ave_Maria.pdf) | [Franz Schubert](http://en.wikipedia.org/wiki/Franz_Schubert) | [YouTube](https://www.youtube.com/watch?v=3yD3VDPvCj0)
