@@ -5,6 +5,10 @@ Download links to transcriptions of Kyle Landry's sheet music, currently hidden 
 
 NOTICE: This topic was originally written by the user Mendell.
 
+[Original Thread](http://kylelandry.com/forums/viewtopic.php?f=5&t=21)
+
+---
+
 [Download all solo piano pieces](http://www.mediafire.com/download/m6aldchpghrhtvw/Kyle+Landry+%28Solo+Piano%29.zip)
 
 Sheet | From | YouTube
