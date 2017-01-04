@@ -92,61 +92,48 @@ Sheet | From | YouTube
 [So Close](https://www.dropbox.com/sh/aljpy2c3dtchfw7/AABD3JNgljC7I1ER3f7t3HyCa/KL_Enchanted_So%20Close_Piano%20Solo.pdf?dl=0) | [Enchanted](http://en.wikipedia.org/wiki/Enchanted_%28film%29) | [YouTube](https://www.youtube.com/watch?v=41WJ6jD3EtQ)
 [How To Train Your Dragon - Test Drive - Piano Solo (Steinway 2/7)](http://www.mediafire.com/download/ajdca19srk7666e/How+To+Train+Your+Dragon+-+Test+Drive+-+Piano+Solo+Steinway+2+of+7.pdf) | [How To Train Your Dragon](https://www.howtotrainyourdragon.com/) | [YouTube](https://www.youtube.com/watch?v=cNCG3qXBcAs)
 [Sleeping Beauty - Once upon a dream](http://www.mediafire.com/view/82zoorqr9k8y4qu/KL_SleepingBeauty_OnceUponADream.pdf) | [Sleeping Beauty](https://en.wikipedia.org/wiki/Sleeping_Beauty_(1959_film)) | [YouTube](https://youtu.be/p11O_-6d92c)
+**Movies** | |
+[Comptine d'un autre été](http://www.mediafire.com/view/1bj43nevbt91wbt/1365672515wpdm_KL_Comptine_D_Un_Autre_Ete.pdf) | [Amélie](http://en.wikipedia.org/wiki/Am%C3%A9lie) | [YouTube](https://www.youtube.com/watch?v=camtQULMLtA)
+[Pirates of the Caribbean Medley](http://www.mediafire.com/view/2y55urcrrv45m7t/Pirates_of_the_Caribbean_Medley.pdf) | [Pirates of the Caribbean](http://en.wikipedia.org/wiki/Pirates_of_the_Caribbean) | [YouTube Part 1](https://www.youtube.com/watch?v=pidW3I9GQa8), [YouTube Part 2](https://www.youtube.com/watch?v=OOQKV-QXSno)
+[The Black Pearl](http://www.mediafire.com/view/i70gwyzb17dqh1b/The_Black_Pearl.pdf) | [Pirates of the Caribbean](http://en.wikipedia.org/wiki/Pirates_of_the_Caribbean) | ""
+[The Blood Ritual and Moonlight Serenade](http://www.mediafire.com/view/u610vok4m68wz3n/The_Blood_Ritual_and_Moonlight_Serenade.pdf) | [Pirates of the Caribbean](http://en.wikipedia.org/wiki/Pirates_of_the_Caribbean) | ""
+[He's a Pirate](http://www.mediafire.com/view/77wiqfhzyyebz7x/He&#39;s_a_Pirate.pdf) | [Pirates of the Caribbean](http://en.wikipedia.org/wiki/Pirates_of_the_Caribbean) | ""
+[Davy Jones](http://www.mediafire.com/view/erk1fig3b2afup1/Davy_Jones.pdf) | [Pirates of the Caribbean](http://en.wikipedia.org/wiki/Pirates_of_the_Caribbean) | ""
+[Up is Down](http://www.mediafire.com/view/u2z9j5d6bib146d/Up_is_Down.pdf) | [Pirates of the Caribbean](http://en.wikipedia.org/wiki/Pirates_of_the_Caribbean) | ""
+[One Day](http://www.mediafire.com/view/gu0f85312cewkqx/One_Day.pdf) | [Pirates of the Caribbean](http://en.wikipedia.org/wiki/Pirates_of_the_Caribbean) | ""
+[Drink Up Me Hearties](http://www.mediafire.com/view/w6ardpbbccn38td/Drink_Up_Me_Hearties.pdf) | [Pirates of the Caribbean](http://en.wikipedia.org/wiki/Pirates_of_the_Caribbean) | ""
+[The Lord of the Rings Medley](http://www.mediafire.com/view/kl434dfxakhfb7h/KL_Lord_of_the_Rings_Medley.pdf) | [The Lord of the Rings](http://en.wikipedia.org/wiki/The_Lord_of_the_Rings_%28film_series%29) | [YouTube](https://www.youtube.com/watch?v=mDY8jLYnL0I)
+[Arrival to Earth](http://www.mediafire.com/view/8zj1dr52ncd7y7t/KL_Arrival_to_Earth.pdf) | [Transformers](http://en.wikipedia.org/wiki/Transformers_%28film%29) | [YouTube](https://www.youtube.com/watch?v=LjyviatSeCY)
+[Harry Potter Medley](http://www.mediafire.com/view/ty1veukbb3vu3n6/Harry_Potter_-_Medley.pdf) | [Harry Potter](http://en.wikipedia.org/wiki/Harry_Potter_%28film_series%29) | [YouTube](https://www.youtube.com/watch?v=NzAXLX-cVsU)
+[Hedwig's Theme](https://www.dropbox.com/sh/aljpy2c3dtchfw7/AAC4OE0pru5Q777Ifa_0bV6wa/Hedwig%27s%20Theme.pdf?dl=0) | [Harry Potter](http://en.wikipedia.org/wiki/Harry_Potter_%28film_series%29) | ""
+[Nimbus 2000](http://www.mediafire.com/view/5fiz9528ytj0uf2/KL_HP_Nimbus_2000.pdf) | [Harry Potter](http://en.wikipedia.org/wiki/Harry_Potter_%28film_series%29) | ""
+[Main Theme Interlude 1](https://www.dropbox.com/s/kqbxbsx0rpw0pvf/Main%20Theme%20Interlude%201.pdf?dl=0) | [Harry Potter](http://en.wikipedia.org/wiki/Harry_Potter_%28film_series%29) | ""
+[Voldemort](https://www.dropbox.com/s/d22lkdn8vp2cqt3/Voldemort.pdf?dl=0) | [Harry Potter](http://en.wikipedia.org/wiki/Harry_Potter_%28film_series%29) | ""
+[Fawkes the Phoenix](https://www.dropbox.com/sh/aljpy2c3dtchfw7/AAAQqZ6RICczATiI8TQyNhl4a/Fawkes%20the%20Phoenix.pdf?dl=0) | [Harry Potter](http://en.wikipedia.org/wiki/Harry_Potter_%28film_series%29) | ""
+[BuckBeak's Flight](https://www.dropbox.com/sh/aljpy2c3dtchfw7/AABfjqtbOfqEfs33talpWeaQa/Buckbeak%27s%20Flight.pdf?dl=0) | [Harry Potter](http://en.wikipedia.org/wiki/Harry_Potter_%28film_series%29) | ""
+[Window to the Past](https://www.dropbox.com/s/09p4ap55vix8l9a/Window%20to%20the%20Past.pdf?dl=0) | [Harry Potter](http://en.wikipedia.org/wiki/Harry_Potter_%28film_series%29) | ""
+[Main Theme Interlude 2](https://www.dropbox.com/s/1rni5xurmlkcwpk/Main%20Theme%20Interlude%202.pdf?dl=0) | [Harry Potter](http://en.wikipedia.org/wiki/Harry_Potter_%28film_series%29) | ""
+[Hogwart's March](https://www.dropbox.com/s/jpnpl0bvmk4l4xn/Hogwart%27s%20March.pdf?dl=0) | [Harry Potter](http://en.wikipedia.org/wiki/Harry_Potter_%28film_series%29) | ""
+[Harry in Winter](https://www.dropbox.com/sh/aljpy2c3dtchfw7/AAAipcQWbyh3gj2MsXHUxpo9a/Harry%20in%20Winter%20-%20Full%20Score.pdf?dl=0) | [Harry Potter](http://en.wikipedia.org/wiki/Harry_Potter_%28film_series%29) | ""
+[Main Theme Interlude 3](https://www.dropbox.com/s/ukfetfcasq6abrx/Main%20Theme%20Interlude%203.pdf?dl=0) | [Harry Potter](http://en.wikipedia.org/wiki/Harry_Potter_%28film_series%29) | ""
+[Harry's Wondrous World](https://www.dropbox.com/sh/aljpy2c3dtchfw7/AAAnUSvRW_YXSjoMLjqmPK1fa/Harry%27s%20Wondrous%20World%20-%20Full%20Score.pdf?dl=0) | [Harry Potter](http://en.wikipedia.org/wiki/Harry_Potter_%28film_series%29) | ""
+[Time](http://www.mediafire.com/view/73454gc6k65jew9/KL_Inception_Time.pdf) | [Inception](http://en.wikipedia.org/wiki/Inception) | [YouTube](https://www.youtube.com/watch?v=JOtDS0vRwxg)
+[Hisaishi Medley](http://www.mediafire.com/view/mt1ef8gzx9p84nd/KL_Joe_Hisaishi_Medley_PAV.pdf) | [Joe Hisaishi](https://en.wikipedia.org/wiki/Joe_Hisaishi) | [YouTube](http://youtu.be/1LGaLDpBafQ)
+[Inochi no Namae (The Name of Life)](http://www.mediafire.com/view/k96jrvno6dg02dp/KL_Inochi_No_Namae.pdf) | [Spirited Away](http://en.wikipedia.org/wiki/Spirited_Away) | [YouTube](https://www.youtube.com/watch?v=-V68TPR7-jY)
+[Waltz of Chihiro](http://www.mediafire.com/view/3gi1tngqb5h2bbn/KL_Waltz_Of_Chihiro.pdf) | [Spirited Away](http://en.wikipedia.org/wiki/Spirited_Away) | [YouTube](https://www.youtube.com/watch?v=SqvKmH4TyQM)
+[Howl's Moving Castle Theme](http://www.mediafire.com/view/t9spzf5tdgdkff6/KL_Howls_Moving_Castle_Theme_-_Full_Score.pdf) | [Howl's Moving Castile](http://studioghibli.wikia.com/wiki/Howl%27s_Moving_Castle) | [YouTube](https://www.youtube.com/watch?v=puAuDt6aNsw)
+[Ghibli - Castle in the Sky](http://www.mediafire.com/download/god5k848ec4bj45/KL_Ghibli_Castle_in_the_Sky.pdf) | [Castle in the Sky](https://en.wikipedia.org/wiki/Castle_in_the_Sky) | [YouTube](https://youtu.be/ZgCWSQORT5k)
+[Once Upon a December](http://www.mediafire.com/view/ww2xa910byu7qra/Once_Upon_A_December.pdf) | [Anastasia](http://en.wikipedia.org/wiki/Anastasia_%281997_film%29) | [YouTube](https://www.youtube.com/watch?v=HpXHdegMTtw)
+[Time Travel Theme](http://www.mediafire.com/view/ki58g1hl4dr9n6v/Time_Travel_Theme.pdf) | [Secret](http://en.wikipedia.org/wiki/Secret_%282007_film%29) | [YouTube](https://www.youtube.com/watch?v=jg6oJjcGYVE)
+[Braveheart Main Theme](https://www.dropbox.com/sh/aljpy2c3dtchfw7/AAB5n11Q91I_GXHLZe8yoiIAa/KL_Braveheart_Main_Theme.pdf?dl=0) | [Braveheart](http://en.wikipedia.org/wiki/Braveheart) | [YouTube](https://www.youtube.com/watch?v=bo7Gh0n269E)
+[For the Love of a Princess](http://www.mediafire.com/view/kkn2ll6wn83f8bb/KL_Braveheart_ForTheLoveOfAPrincess.pdf) | [Braveheart](http://en.wikipedia.org/wiki/Braveheart) | [YouTube](http://youtu.be/noxU0L4Cl0k)
+[Summer Duet](http://www.mediafire.com/view/g2he1mkpuk4mavc/Joe_Hisaishi_-_Summer_Duet.pdf) | [Kikujiro](http://en.wikipedia.org/wiki/Kikujiro) | [YouTube](https://www.youtube.com/watch?v=vpOBSVJjDwQ)
+[Summer Duet - Violin Only](http://www.mediafire.com/view/dfzd2161i9dqqas/Summer_-_Violin_Only.pdf) | [Kikujiro](http://en.wikipedia.org/wiki/Kikujiro) | ""
+[Summer Duet - Piano Only](http://www.mediafire.com/view/cl7mkwm8rbo189u/Summer_-_Piano_Only.pdf) | [Kikujiro](http://en.wikipedia.org/wiki/Kikujiro) | ""
+[Misty Mountains](http://www.mediafire.com/view/4yjw32nqvwdsqdj/The_Hobbit_-_Misty_Mountains.pdf) | [The Hobbit](http://en.wikipedia.org/wiki/The_Hobbit_%28film_series%29) | [YouTube](https://www.youtube.com/watch?v=Tn1Amt1A52Y)
+[First Step](http://www.mediafire.com/view/8sn9jtvasghqrj0/KL_Interstellar_FirstStep.pdf) | [Interstellar](http://en.wikipedia.org/wiki/Interstellar_%28film%29) | [YouTube](https://www.youtube.com/watch?v=h9vj-p1yGLw)
+[Merry Christmas, Mr. Lawrence - Main Theme](http://www.mediafire.com/download/mg359tp95v5qb95/KL_Ryuichi_Sakamoto_Merry_Christmas_Mr_Lawrence.pdf) | [Merry Christmas, Mr. Lawrence](http://www.imdb.com/title/tt0085933/) | [YouTube](https://www.youtube.com/watch?v=uLC0sxBjRwU)
 
-
-
-[b][u][size=150]Movies[/size][/u][/b]
-
-[url=http://www.mediafire.com/view/1bj43nevbt91wbt/1365672515wpdm_KL_Comptine_D_Un_Autre_Ete.pdf]Comptine d'un autre été[/url] - [url=http://en.wikipedia.org/wiki/Am%C3%A9lie]Amélie[/url] - [url=https://www.youtube.com/watch?v=camtQULMLtA]YouTube[/url]
-[url=http://www.mediafire.com/view/2y55urcrrv45m7t/Pirates_of_the_Caribbean_Medley.pdf]Pirates of the Caribbean Medley[/url] - [url=http://en.wikipedia.org/wiki/Pirates_of_the_Caribbean]Pirates of the caribbean[/url] - [url=https://www.youtube.com/watch?v=pidW3I9GQa8]YouTube (Part 1)[/url] - [url=https://www.youtube.com/watch?v=OOQKV-QXSno]YouTube (Part 2)[/url]
-[list]
-[*][url=http://www.mediafire.com/view/i70gwyzb17dqh1b/The_Black_Pearl.pdf]The Black Pearl[/url][/*]
-[*][url=http://www.mediafire.com/view/u610vok4m68wz3n/The_Blood_Ritual_and_Moonlight_Serenade.pdf]The Blood Ritual and Moonlight Serenade[/url][/*]
-[*][url=http://www.mediafire.com/view/77wiqfhzyyebz7x/He&#39;s_a_Pirate.pdf]He's a pirate[/url][/*]
-[*][url=http://www.mediafire.com/view/erk1fig3b2afup1/Davy_Jones.pdf]Davy Jones[/url][/*]
-[*][url=http://www.mediafire.com/view/u2z9j5d6bib146d/Up_is_Down.pdf]Up is Down[/url][/*]
-[*][url=http://www.mediafire.com/view/gu0f85312cewkqx/One_Day.pdf]One Day[/url][/*]
-[*][url=http://www.mediafire.com/view/w6ardpbbccn38td/Drink_Up_Me_Hearties.pdf]Drink up me hearties[/url][/*]
-[/list]
-[url=http://www.mediafire.com/view/kl434dfxakhfb7h/KL_Lord_of_the_Rings_Medley.pdf]The Lord of the Rings Medley[/url] - [url=http://en.wikipedia.org/wiki/The_Lord_of_the_Rings_%28film_series%29]The Lord of the Rings[/url] - [url=https://www.youtube.com/watch?v=mDY8jLYnL0I]YouTube[/url]
-[url=http://www.mediafire.com/view/8zj1dr52ncd7y7t/KL_Arrival_to_Earth.pdf]Arrival to Earth[/url] - [url=http://en.wikipedia.org/wiki/Transformers_%28film%29]Transformers[/url] - [url=https://www.youtube.com/watch?v=LjyviatSeCY]YouTube[/url]
-[url=http://www.mediafire.com/view/ty1veukbb3vu3n6/Harry_Potter_-_Medley.pdf]Harry Potter Medley[/url] - [url=http://en.wikipedia.org/wiki/Harry_Potter_%28film_series%29]Harry Potter[/url] - [url=https://www.youtube.com/watch?v=NzAXLX-cVsU]YouTube[/url]
-[list]
-[*][url=https://www.dropbox.com/sh/aljpy2c3dtchfw7/AAC4OE0pru5Q777Ifa_0bV6wa/Hedwig%27s%20Theme.pdf?dl=0]Hedwig's theme[/url][/*]
-[*][url=http://www.mediafire.com/view/5fiz9528ytj0uf2/KL_HP_Nimbus_2000.pdf]Nimbus  2000[/url][/*]
-[*][url=https://www.dropbox.com/s/kqbxbsx0rpw0pvf/Main%20Theme%20Interlude%201.pdf?dl=0]Main Theme Interlude 1[/url][/*]
-[*][url=https://www.dropbox.com/s/d22lkdn8vp2cqt3/Voldemort.pdf?dl=0]Voldemort[/url][/*]
-[*][url=https://www.dropbox.com/sh/aljpy2c3dtchfw7/AAAQqZ6RICczATiI8TQyNhl4a/Fawkes%20the%20Phoenix.pdf?dl=0]Fawkes the Phoenix[/url][/*]
-[*][url=https://www.dropbox.com/sh/aljpy2c3dtchfw7/AABfjqtbOfqEfs33talpWeaQa/Buckbeak%27s%20Flight.pdf?dl=0]BuckBeak's Flight[/url][/*]
-[*][url=https://www.dropbox.com/s/09p4ap55vix8l9a/Window%20to%20the%20Past.pdf?dl=0]Window To The Past[/url][/*]
-[*][url=https://www.dropbox.com/s/1rni5xurmlkcwpk/Main%20Theme%20Interlude%202.pdf?dl=0]Main Theme Interlude 2[/url][/*]
-[*][url=https://www.dropbox.com/s/jpnpl0bvmk4l4xn/Hogwart%27s%20March.pdf?dl=0]Hogwart's March[/url][/*]
-[*][url=https://www.dropbox.com/sh/aljpy2c3dtchfw7/AAAipcQWbyh3gj2MsXHUxpo9a/Harry%20in%20Winter%20-%20Full%20Score.pdf?dl=0]Harry In Winter[/url][/*]
-[*][url=https://www.dropbox.com/s/ukfetfcasq6abrx/Main%20Theme%20Interlude%203.pdf?dl=0]Main Theme Interlude 3[/url][/*]
-[*][url=https://www.dropbox.com/sh/aljpy2c3dtchfw7/AAAnUSvRW_YXSjoMLjqmPK1fa/Harry%27s%20Wondrous%20World%20-%20Full%20Score.pdf?dl=0]Harry's Wondrous World[/url][/*]
-[/list]
-[url=http://www.mediafire.com/view/73454gc6k65jew9/KL_Inception_Time.pdf]Time[/url] - [url=http://en.wikipedia.org/wiki/Inception]Inception[/url] - [url=https://www.youtube.com/watch?v=JOtDS0vRwxg]YouTube[/url]
-[url=http://www.mediafire.com/view/mt1ef8gzx9p84nd/KL_Joe_Hisaishi_Medley_PAV.pdf]Hisaishi Medley[/url] - [url=http://youtu.be/1LGaLDpBafQ]YouTube[/url]
-[url=http://en.wikipedia.org/wiki/Spirited_Away]Spirited away :[/url]
-[list]
-[*][url=http://www.mediafire.com/view/k96jrvno6dg02dp/KL_Inochi_No_Namae.pdf]Inochi no Namae (The Name of Life)[/url] - [url=https://www.youtube.com/watch?v=-V68TPR7-jY]YouTube[/url][/*]
-[*][url=http://www.mediafire.com/view/3gi1tngqb5h2bbn/KL_Waltz_Of_Chihiro.pdf]Waltz of Chihiro[/url] - [url=https://www.youtube.com/watch?v=SqvKmH4TyQM]YouTube[/url][/*]
-[/list]
-[url=http://www.mediafire.com/view/t9spzf5tdgdkff6/KL_Howls_Moving_Castle_Theme_-_Full_Score.pdf]Howl's Moving Castle Theme[/url] - [url=http://studioghibli.wikia.com/wiki/Howl%27s_Moving_Castle]Howl's Moving Castle[/url] - [url=https://www.youtube.com/watch?v=puAuDt6aNsw]YouTube[/url]
-[url=http://www.mediafire.com/download/god5k848ec4bj45/KL_Ghibli_Castle_in_the_Sky.pdf]Ghibli - Castle in the Sky[/url] - [url=https://youtu.be/ZgCWSQORT5k]YouTube[/url]
-[url=http://www.mediafire.com/view/ww2xa910byu7qra/Once_Upon_A_December.pdf]Once Upon a December[/url] - [url=http://en.wikipedia.org/wiki/Anastasia_%281997_film%29]Anastasia[/url] - [url=https://www.youtube.com/watch?v=HpXHdegMTtw]YouTube[/url]
-[url=http://www.mediafire.com/view/ki58g1hl4dr9n6v/Time_Travel_Theme.pdf]Time Travel theme[/url] - [url=http://en.wikipedia.org/wiki/Secret_%282007_film%29]Secret[/url] - [url=https://www.youtube.com/watch?v=jg6oJjcGYVE]YouTube[/url]
-[url=http://en.wikipedia.org/wiki/Braveheart]Braveheart[/url]:
-[list][*][url=https://www.dropbox.com/sh/aljpy2c3dtchfw7/AAB5n11Q91I_GXHLZe8yoiIAa/KL_Braveheart_Main_Theme.pdf?dl=0]Braveheart main theme[/url] - [url=https://www.youtube.com/watch?v=bo7Gh0n269E]YouTube[/url]
-[*][url=http://www.mediafire.com/view/kkn2ll6wn83f8bb/KL_Braveheart_ForTheLoveOfAPrincess.pdf]For the love of a Princess[/url] - [url=http://youtu.be/noxU0L4Cl0k]Youtube[/url][/list]
-[url=http://www.mediafire.com/view/g2he1mkpuk4mavc/Joe_Hisaishi_-_Summer_Duet.pdf]Summer Duet[/url] - [url=http://en.wikipedia.org/wiki/Kikujiro]Kikujiro[/url] - [url=https://www.youtube.com/watch?v=vpOBSVJjDwQ]YouTube[/url]
-[list]
-[*][url=http://www.mediafire.com/view/dfzd2161i9dqqas/Summer_-_Violin_Only.pdf]Violin only[/url][/*]
-[*][url=http://www.mediafire.com/view/cl7mkwm8rbo189u/Summer_-_Piano_Only.pdf]Piano only[/url][/*]
-[/list]
-[url=http://www.mediafire.com/view/4yjw32nqvwdsqdj/The_Hobbit_-_Misty_Mountains.pdf]Misty Mountains[/url] - [url=http://en.wikipedia.org/wiki/The_Hobbit_%28film_series%29]The Hobbit[/url] - [url=https://www.youtube.com/watch?v=Tn1Amt1A52Y]YouTube[/url]
-[url=http://www.mediafire.com/view/8sn9jtvasghqrj0/KL_Interstellar_FirstStep.pdf]First Step[/url] - [url=http://en.wikipedia.org/wiki/Interstellar_%28film%29]Interstellar[/url] - [url=https://www.youtube.com/watch?v=h9vj-p1yGLw]YouTube[/url]
-[url=http://www.mediafire.com/download/mg359tp95v5qb95/KL_Ryuichi_Sakamoto_Merry_Christmas_Mr_Lawrence.pdf]Merry Christmas, Mr. Lawrence - Main Theme[/url] - [url=https://www.youtube.com/watch?v=uLC0sxBjRwU]YouTube[/url] - [url=http://www.imdb.com/title/tt0085933/]Merry Christmas, Mr. Lawrence[/url]
 
 [b][u][size=150]Pop Songs[/size][/u][/b]
 
