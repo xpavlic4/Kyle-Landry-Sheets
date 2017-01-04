@@ -133,31 +133,27 @@ Sheet | From | YouTube
 [Misty Mountains](http://www.mediafire.com/view/4yjw32nqvwdsqdj/The_Hobbit_-_Misty_Mountains.pdf) | [The Hobbit](http://en.wikipedia.org/wiki/The_Hobbit_%28film_series%29) | [YouTube](https://www.youtube.com/watch?v=Tn1Amt1A52Y)
 [First Step](http://www.mediafire.com/view/8sn9jtvasghqrj0/KL_Interstellar_FirstStep.pdf) | [Interstellar](http://en.wikipedia.org/wiki/Interstellar_%28film%29) | [YouTube](https://www.youtube.com/watch?v=h9vj-p1yGLw)
 [Merry Christmas, Mr. Lawrence - Main Theme](http://www.mediafire.com/download/mg359tp95v5qb95/KL_Ryuichi_Sakamoto_Merry_Christmas_Mr_Lawrence.pdf) | [Merry Christmas, Mr. Lawrence](http://www.imdb.com/title/tt0085933/) | [YouTube](https://www.youtube.com/watch?v=uLC0sxBjRwU)
+**Pop Songs** | | 
+[Apologize Variations](http://www.mediafire.com/view/0b843od3znmjnvx/Apologize.pdf) | [OneRepublic](http://en.wikipedia.org/wiki/OneRepublic) | [YouTube](https://www.youtube.com/watch?v=IAVIZe5lKow)
+[Scarborough Fair](http://www.mediafire.com/view/lq7jzrqn1h99lcp/KL_Scarborough_Fair_Piano_Solo-_Full_Score_1.13_%281%29.pdf) | [Simon and Garfunkel](http://en.wikipedia.org/wiki/Simon_%26_Garfunkel) | [YouTube](https://www.youtube.com/watch?v=2OMFkTM5Mrs)
+[Drops of Jupiter](http://www.mediafire.com/view/m4llaj58g7jtu4x/KL_Train_-_Drops_of_Jupiter_Full_Score.pdf) | [Train](http://en.wikipedia.org/wiki/Train_%28band%29) | [YouTube](https://www.youtube.com/watch?v=7aXltwtw4w0)
+[The Great Escape](http://www.mediafire.com/view/3hdmwaj8g35u8ln/KL_Boys_Like_Girls_The_Great_Escape.pdf) | [Boys like Girls](http://en.wikipedia.org/wiki/Boys_Like_Girls) | [YouTube](https://www.youtube.com/watch?v=fdZETb-ZVo4)
+[Forever Young](http://www.mediafire.com/view/1kppu9aq1r3a1kg/KL_Forever_Young.pdf) | [Alphaville](http://en.wikipedia.org/wiki/Alphaville_%28band%29) | [YouTube](https://www.youtube.com/watch?v=4ZO0n4zgfPw)
+[Tong Hua ~Fairy Tale~](http://www.mediafire.com/view/jij6jsgsgh818xe/KL_Guang_Liang_Tong_Hua_Fairytale.pdf) | [Guang Liang (Michael Wong)](http://en.wikipedia.org/wiki/Michael_Wong_%28singer%29) | [YouTube](https://www.youtube.com/watch?v=EEzZkI6kxu0)
+[Somebody That I Use to Know](http://www.mediafire.com/view/iel74dm4avq6d98/Somebody_That_I_Used_to_Know.pdf) | [Gotye](http://en.wikipedia.org/wiki/Gotye) | [YouTube](https://www.youtube.com/watch?v=X-Hog1jwVVs)
+[Bad Day](https://www.dropbox.com/sh/aljpy2c3dtchfw7/AACSwvbBmK95g30tPlSEcmfNa/1365672655wpdm_KL_Daniel_Powter_Bad_Day-1.pdf?dl=0) | [Daniel Powter](http://en.wikipedia.org/wiki/Daniel_Powter) | [YouTube](https://www.youtube.com/watch?v=mcVTzHtgwJc)
+[Skyfall](https://www.dropbox.com/sh/aljpy2c3dtchfw7/AACZYk5M2JpMDxns8JPP7uQBa/Adele%20-%20Skyfall%20%28Kyle%20Landry%29.pdf?dl=0) | [Adele](http://en.wikipedia.org/wiki/Adele) | [YouTube](https://www.youtube.com/watch?v=uto95f62oWM)
+[My Immortal](https://www.dropbox.com/sh/aljpy2c3dtchfw7/AAAzLBj8vcKfHI7g2_cae7DHa/KL_Evanescence_My_Immortal.pdf?dl=0) | [Evanescence](http://en.wikipedia.org/wiki/Evanescence) | [YouTube](https://www.youtube.com/watch?v=NRKHQOj1dGw)
+[Hallelujah](https://www.dropbox.com/sh/aljpy2c3dtchfw7/AAAM88tLUHOauL5Hn7ill4Zba/KL_Hallelujah.pdf?dl=0) | [Leonard Cohen](http://en.wikipedia.org/wiki/Leonard_Cohen) | [YouTube](https://www.youtube.com/watch?v=TBMf3mcIGkw)
+[Open Arms](https://www.dropbox.com/sh/aljpy2c3dtchfw7/AACGCZy_V141uM2qVL20fBVXa/KL_Journey_Open%20Arms.pdf?dl=0) | [Journey](http://en.wikipedia.org/wiki/Journey_%28band%29) | [YouTube](https://www.youtube.com/watch?v=HoYURsJY6fY)
+[You Raise Me Up](https://www.dropbox.com/sh/aljpy2c3dtchfw7/AAB107kgm0wbDubbRtXyhFgRa/KL_You_Raise_Me_Up.pdf?dl=0) | [Josh Groban](http://en.wikipedia.org/wiki/Josh_Groban) | [YouTube](https://www.youtube.com/watch?v=pg4QIAJdCso)
+[All of Me](http://www.mediafire.com/view/8izei97cyck3f7t/KL_JohnLegend_AllOfMe.pdf) | [John Legend](http://en.wikipedia.org/wiki/John_Legend) | [YouTube](https://www.youtube.com/watch?v=8F3cu7JGVrQ)
+[Bohemian Rhapsody](http://www.mediafire.com/view/9wu1r1h7xpvmupv/Bohemian_Rhapsody.pdf) | [Queen](http://en.wikipedia.org/wiki/Queen_%28band%29) | [YouTube](https://www.youtube.com/watch?v=ucot-V9WuxY)
+[We Are the Champions](http://www.mediafire.com/view/kkgu5iq5azq5f5c/Queen_-_We_Are_The_Champions_%28KL%29.pdf) | [Queen](http://en.wikipedia.org/wiki/Queen_%28band%29) | [YouTube](https://www.youtube.com/watch?v=rJf5xVZWxcQ)
+[Wedding Dress](http://www.mediafire.com/view/eeqggdcshxqvzz4/Wedding_Dress.pdf) | [Taeyang](http://en.wikipedia.org/wiki/Taeyang) | [YouTube](https://www.youtube.com/watch?v=CmhOlhF2X6s)
+[Across the Universe](http://www.mediafire.com/view/9nx89ch1lzja987/Beatles_-_Across_the_Universe.pdf) | [The Beatles](http://en.wikipedia.org/wiki/The_Beatles) | [YouTube](https://www.youtube.com/watch?v=kFsA_2Tfr-k)
 
 
-[b][u][size=150]Pop Songs[/size][/u][/b]
-
-[url=http://www.mediafire.com/view/0b843od3znmjnvx/Apologize.pdf]Apologize Variations[/url] - [url=http://en.wikipedia.org/wiki/OneRepublic]One Republic[/url] - [url=https://www.youtube.com/watch?v=IAVIZe5lKow]YouTube[/url]
-[url=http://www.mediafire.com/view/lq7jzrqn1h99lcp/KL_Scarborough_Fair_Piano_Solo-_Full_Score_1.13_%281%29.pdf]Scarborough fair[/url] - [url=http://en.wikipedia.org/wiki/Simon_%26_Garfunkel]Simon and Garfunkel[/url] - [url=https://www.youtube.com/watch?v=2OMFkTM5Mrs]YouTube[/url]
-[url=http://www.mediafire.com/view/m4llaj58g7jtu4x/KL_Train_-_Drops_of_Jupiter_Full_Score.pdf]Drops of Jupiter[/url] - [url=http://en.wikipedia.org/wiki/Train_%28band%29]Train[/url] - [url=https://www.youtube.com/watch?v=7aXltwtw4w0]YouTube[/url]
-[url=http://www.mediafire.com/view/3hdmwaj8g35u8ln/KL_Boys_Like_Girls_The_Great_Escape.pdf]The great escape[/url] - [url=http://en.wikipedia.org/wiki/Boys_Like_Girls]Boys like Girls[/url] - [url=https://www.youtube.com/watch?v=fdZETb-ZVo4]YouTube[/url]
-[url=http://www.mediafire.com/view/1kppu9aq1r3a1kg/KL_Forever_Young.pdf]Forever young[/url] - [url=http://en.wikipedia.org/wiki/Alphaville_%28band%29]Alphaville[/url] - [url=https://www.youtube.com/watch?v=4ZO0n4zgfPw]YouTube[/url]
-[url=http://www.mediafire.com/view/jij6jsgsgh818xe/KL_Guang_Liang_Tong_Hua_Fairytale.pdf]Tong Hua ~Fairy Tale~[/url] - [url=http://en.wikipedia.org/wiki/Michael_Wong_%28singer%29]Guang Liang (Michael Wong)[/url] - [url=https://www.youtube.com/watch?v=EEzZkI6kxu0]YouTube[/url]
-[url=http://www.mediafire.com/view/iel74dm4avq6d98/Somebody_That_I_Used_to_Know.pdf]Somebody That I Use to Know[/url] - [url=http://en.wikipedia.org/wiki/Gotye]Gotye[/url] - [url=https://www.youtube.com/watch?v=X-Hog1jwVVs]YouTube[/url]
-[url=https://www.dropbox.com/sh/aljpy2c3dtchfw7/AACSwvbBmK95g30tPlSEcmfNa/1365672655wpdm_KL_Daniel_Powter_Bad_Day-1.pdf?dl=0]Bad Day[/url] - [url=http://en.wikipedia.org/wiki/Daniel_Powter]Daniel Powter[/url] - [url=https://www.youtube.com/watch?v=mcVTzHtgwJc]YouTube[/url]
-[url=https://www.dropbox.com/sh/aljpy2c3dtchfw7/AACZYk5M2JpMDxns8JPP7uQBa/Adele%20-%20Skyfall%20%28Kyle%20Landry%29.pdf?dl=0]Skyfall[/url] - [url=http://en.wikipedia.org/wiki/Adele]Adele Atkins[/url] - [url=https://www.youtube.com/watch?v=uto95f62oWM]YouTube[/url]
-[url=https://www.dropbox.com/sh/aljpy2c3dtchfw7/AAAzLBj8vcKfHI7g2_cae7DHa/KL_Evanescence_My_Immortal.pdf?dl=0]My Immortal[/url] - [url=http://en.wikipedia.org/wiki/Evanescence]Evanescence[/url] - [url=https://www.youtube.com/watch?v=NRKHQOj1dGw]YouTube[/url]
-[url=https://www.dropbox.com/sh/aljpy2c3dtchfw7/AAAM88tLUHOauL5Hn7ill4Zba/KL_Hallelujah.pdf?dl=0]Hallelujah[/url] - [url=http://en.wikipedia.org/wiki/Leonard_Cohen]Leonard Cohen[/url] - [url=https://www.youtube.com/watch?v=TBMf3mcIGkw]YouTube[/url]
-[url=https://www.dropbox.com/sh/aljpy2c3dtchfw7/AACGCZy_V141uM2qVL20fBVXa/KL_Journey_Open%20Arms.pdf?dl=0]Open Arms[/url] - [url=http://en.wikipedia.org/wiki/Journey_%28band%29]Journey[/url] - [url=https://www.youtube.com/watch?v=HoYURsJY6fY]YouTube[/url]
-[url=https://www.dropbox.com/sh/aljpy2c3dtchfw7/AAB107kgm0wbDubbRtXyhFgRa/KL_You_Raise_Me_Up.pdf?dl=0]You Raise Me Up[/url] - [url=http://en.wikipedia.org/wiki/Josh_Groban]Josh Groban[/url] - [url=https://www.youtube.com/watch?v=pg4QIAJdCso]YouTube[/url]
-[url=http://www.mediafire.com/view/8izei97cyck3f7t/KL_JohnLegend_AllOfMe.pdf]All of Me[/url] - [url=http://en.wikipedia.org/wiki/John_Legend]John Legend[/url] - [url=https://www.youtube.com/watch?v=8F3cu7JGVrQ]YouTube[/url]
-[url=http://en.wikipedia.org/wiki/Queen_%28band%29]Queen :[/url]
-[list]
-[*][url=http://www.mediafire.com/view/9wu1r1h7xpvmupv/Bohemian_Rhapsody.pdf]Bohemian Rhapsody[/url] - [url=https://www.youtube.com/watch?v=ucot-V9WuxY]YouTube[/url][/*]
-[*][url=http://www.mediafire.com/view/kkgu5iq5azq5f5c/Queen_-_We_Are_The_Champions_%28KL%29.pdf]We Are The Champions[/url] - [url=https://www.youtube.com/watch?v=rJf5xVZWxcQ]YouTube[/url][/*]
-[/list]
-[url=http://www.mediafire.com/view/eeqggdcshxqvzz4/Wedding_Dress.pdf]Wedding Dress[/url] - [url=http://en.wikipedia.org/wiki/Taeyang]Taeyang[/url] - [url=https://www.youtube.com/watch?v=CmhOlhF2X6s]YouTube[/url]
-[url=http://www.mediafire.com/view/9nx89ch1lzja987/Beatles_-_Across_the_Universe.pdf]Across the Universe[/url] - [url=http://en.wikipedia.org/wiki/The_Beatles]The Beatles[/url] - [url=https://www.youtube.com/watch?v=kFsA_2Tfr-k]YouTube[/url]
 
 [b][u][size=150]Miscellaneous[/size][/u][/b]
 
