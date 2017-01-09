@@ -19,6 +19,7 @@ Sheet | From | YouTube
 [Dearly Beloved 2008](http://www.mediafire.com/view/d4lcxkh34ebhv54/KL_Dearly_Beloved_2008.pdf) | [Kingdom Hearts](http://en.wikipedia.org/wiki/Kingdom_Hearts) | [YouTube](https://www.youtube.com/watch?v=a4-sqvJRm5U)
 [Dearly Beloved 2009](http://www.mediafire.com/view/zcd84jni1nfg4ps/KL_Dearly_Beloved_2009.pdf) | [Kingdom Hearts](http://en.wikipedia.org/wiki/Kingdom_Hearts) | [YouTube](https://www.youtube.com/watch?v=-FgYwY5F5P4)
 [Dearly Beloved 2010](http://www.mediafire.com/view/a3n19ezdnzaszw9/KL_KH_Dearly_Beloved_2010.pdf) | [Kingdom Hearts](http://en.wikipedia.org/wiki/Kingdom_Hearts) | [YouTube](https://www.youtube.com/watch?v=eQ0E3dsHRV4)
+[Dearly Beloved 2011](http://www.mediafire.com/file/xk2c3iv310vx24j/KL_Kingdom_Hearts_DB_2011_COMPLETE_REVAMP.pdf) | [Kingdom Hearts](https://en.wikipedia.org/wiki/Kingdom_Hearts) | [YouTube](https://www.youtube.com/watch?v=i3C79ebnUMY)
 [Dearly Beloved 2012](http://www.mediafire.com/view/15b7ufgrrppciez/KL_Dearly_Beloved_2012.pdf) | [Kingdom Hearts](http://en.wikipedia.org/wiki/Kingdom_Hearts) | [YouTube](https://www.youtube.com/watch?v=6Ujdk26C7JA)
 [Dearly Beloved 2013](http://www.mediafire.com/view/5zr4n4c445mniqv/Dearly_Beloved_2013.pdf) | [Kingdom Hearts](http://en.wikipedia.org/wiki/Kingdom_Hearts) | [YouTube](https://www.youtube.com/watch?v=bItsQnOxds0)
 [Dearly Beloved Soft Edition](http://www.mediafire.com/view/7yl1hol4xmbbbw4/KL_KH_Dearly_Beloved_Soft_Edition.pdf) | [Kingdom Hearts](http://en.wikipedia.org/wiki/Kingdom_Hearts) | [YouTube](https://www.youtube.com/watch?v=Cg-EzLwC83A)
@@ -167,3 +168,4 @@ Sheet | From | YouTube
 [Christmas Carol Medley](http://www.mediafire.com/view/z9jaict1lcz9f2u/Christmas_Carol_Medley.pdf) | [Christmas Music](http://en.wikipedia.org/wiki/Christmas_music) | [YouTube](https://www.youtube.com/watch?v=pY7xGIGEch4)
 [Christmas Medley Special 2009](http://www.mediafire.com/view/91mgaoznqj3l5jc/Christmas_Medley_Special.pdf) | [Christmas Music](http://en.wikipedia.org/wiki/Christmas_music) | [YouTube](https://www.youtube.com/watch?v=GGBzsRFoCgA)
 [Ave Maria](http://www.mediafire.com/view/c66b0gg9oznjr7a/Ave_Maria.pdf) | [Franz Schubert](http://en.wikipedia.org/wiki/Franz_Schubert) | [YouTube](https://www.youtube.com/watch?v=3yD3VDPvCj0)
+
