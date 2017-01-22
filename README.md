@@ -76,6 +76,8 @@ Sheet | From | YouTube
 [Nodame Cantabile OP (Allegro Cantabile)](http://www.mediafire.com/view/y7ydi9572adadjc/KL_NodameCantabile_OPAllegroCantabile.pdf) | [Nodame Cantabile](http://en.wikipedia.org/wiki/Nodame_Cantabile) | [YouTube](https://www.youtube.com/watch?v=v5v3v4bWXGE)
 [Setsunai Koi no Prelude](http://sheethost.com/sheet/HJmCRC) | [Nodame Cantabile](http://en.wikipedia.org/wiki/Nodame_Cantabile) | [YouTube](https://youtu.be/BUZTTmdA-yo) - Edited by Nickelodius (Feb 19th)
 [Fairy Tail Theme](http://www.mediafire.com/view/xk4jkm2o1m8q0n7/KL_FairyTail_Theme.pdf) | [Fairy Tail](https://en.wikipedia.org/wiki/Fairy_Tail) | [YouTube](http://youtu.be/dIqpUqwlWN4)
+[Fukai Mori](http://www.mediafire.com/file/hfeb2aaql1u8n19/Inuyasha_-_Fukai_Mori_%28Kyle_Landry%27s_Arr.%29.pdf) | [Inuyasha](http://en.wikipedia.org/wiki/Inuyasha) | [YouTube](https://www.youtube.com/watch?v=iTxNSkrKgmI)
+[Sadness and Sorrow & Orochimaru's Theme](http://www.mediafire.com/file/rf7d5vbqog5a2va/Naruto_-_Sadness_and_Sorrow_%28Kyle_Landry%27s_Arr.%29.pdf) | [Naruto](http://en.wikipedia.org/wiki/Naruto) | [YouTube](https://www.youtube.com/watch?v=LwwEjYAJBTg)
 **Disney and Pixar** | | 
 [Beauty and the Beast](http://www.mediafire.com/view/bf33mi737ehqsuk/Beauty_and_the_Beast.pdf) | [Beauty and the Beast](http://en.wikipedia.org/wiki/Beauty_and_the_Beast_%281991_film%29) | [YouTube](https://www.youtube.com/watch?v=AyhPxrchntM)
 [Something There](http://www.mediafire.com/view/zpcqzelyrmoyne7/Something_There.pdf) | [Beauty and the Beast](http://en.wikipedia.org/wiki/Beauty_and_the_Beast_%281991_film%29) | [YouTube](https://www.youtube.com/watch?v=mfhM2y1aV48)
