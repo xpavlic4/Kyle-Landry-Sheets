@@ -138,10 +138,6 @@ Sheet | From | YouTube
 [Misty Mountains](http://www.mediafire.com/view/4yjw32nqvwdsqdj/The_Hobbit_-_Misty_Mountains.pdf) | [The Hobbit](http://en.wikipedia.org/wiki/The_Hobbit_%28film_series%29) | [YouTube](https://www.youtube.com/watch?v=Tn1Amt1A52Y)
 [First Step](http://www.mediafire.com/view/8sn9jtvasghqrj0/KL_Interstellar_FirstStep.pdf) | [Interstellar](http://en.wikipedia.org/wiki/Interstellar_%28film%29) | [YouTube](https://www.youtube.com/watch?v=h9vj-p1yGLw)
 [Merry Christmas, Mr. Lawrence - Main Theme](http://www.mediafire.com/download/mg359tp95v5qb95/KL_Ryuichi_Sakamoto_Merry_Christmas_Mr_Lawrence.pdf) | [Merry Christmas, Mr. Lawrence](http://www.imdb.com/title/tt0085933/) | [YouTube](https://www.youtube.com/watch?v=uLC0sxBjRwU)
-[I Don't Want to Miss a Thing](http://www.mediafire.com/file/dq0br6tn58rerps/Aerosmith_-_I_Don%27t_Want_to_Miss_a_Thing_%28Kyle_Landry%27s_Arr.%29.pdf) | [Aerosmith](https://en.wikipedia.org/wiki/Aerosmith) | [YouTube](https://www.youtube.com/watch?v=rLVrzp4gVvk)
-[Hello](http://www.mediafire.com/file/5j2eqqae6yq7ba4/Adele_-_Hello_%28Kyle_Landry%27s_Arr.%29.pdf) | [Adele](https://en.wikipedia.org/wiki/Adele) | [YouTube](https://www.youtube.com/watch?v=ueB7BWaaohM)
-[A Thousand Years](http://www.mediafire.com/file/o55alphk65h8d50/Christina_Perri_-_A_Thousand_Years_%28Kyle_Landry%27s_Arr.%29.pdf) | [Christina Perri](https://en.wikipedia.org/wiki/Christina_Perri) | [YouTube](https://www.youtube.com/watch?v=ePisbKsPrKs)
-[Call Me Maybe](http://www.mediafire.com/file/6kg932c76dmrgfh/Carly_Rae_Jepsen_-_Call_Me_Maybe_%28Kyle_Landry%27s_Arr.%29.pdf) | [Carly Rae Jepsen](https://en.wikipedia.org/wiki/Carly_Rae_Jepsen) | [YouTube](https://www.youtube.com/watch?v=SKsVwOm-cYg)
 **Pop Songs** | | 
 [Apologize Variations](http://www.mediafire.com/view/0b843od3znmjnvx/Apologize.pdf) | [OneRepublic](http://en.wikipedia.org/wiki/OneRepublic) | [YouTube](https://www.youtube.com/watch?v=IAVIZe5lKow)
 [Scarborough Fair](http://www.mediafire.com/view/lq7jzrqn1h99lcp/KL_Scarborough_Fair_Piano_Solo-_Full_Score_1.13_%281%29.pdf) | [Simon and Garfunkel](http://en.wikipedia.org/wiki/Simon_%26_Garfunkel) | [YouTube](https://www.youtube.com/watch?v=2OMFkTM5Mrs)
@@ -161,6 +157,10 @@ Sheet | From | YouTube
 [We Are the Champions](http://www.mediafire.com/view/kkgu5iq5azq5f5c/Queen_-_We_Are_The_Champions_%28KL%29.pdf) | [Queen](http://en.wikipedia.org/wiki/Queen_%28band%29) | [YouTube](https://www.youtube.com/watch?v=rJf5xVZWxcQ)
 [Wedding Dress](http://www.mediafire.com/view/eeqggdcshxqvzz4/Wedding_Dress.pdf) | [Taeyang](http://en.wikipedia.org/wiki/Taeyang) | [YouTube](https://www.youtube.com/watch?v=CmhOlhF2X6s)
 [Across the Universe](http://www.mediafire.com/view/9nx89ch1lzja987/Beatles_-_Across_the_Universe.pdf) | [The Beatles](http://en.wikipedia.org/wiki/The_Beatles) | [YouTube](https://www.youtube.com/watch?v=kFsA_2Tfr-k)
+[I Don't Want to Miss a Thing](http://www.mediafire.com/file/dq0br6tn58rerps/Aerosmith_-_I_Don%27t_Want_to_Miss_a_Thing_%28Kyle_Landry%27s_Arr.%29.pdf) | [Aerosmith](https://en.wikipedia.org/wiki/Aerosmith) | [YouTube](https://www.youtube.com/watch?v=rLVrzp4gVvk)
+[Hello](http://www.mediafire.com/file/5j2eqqae6yq7ba4/Adele_-_Hello_%28Kyle_Landry%27s_Arr.%29.pdf) | [Adele](https://en.wikipedia.org/wiki/Adele) | [YouTube](https://www.youtube.com/watch?v=ueB7BWaaohM)
+[A Thousand Years](http://www.mediafire.com/file/o55alphk65h8d50/Christina_Perri_-_A_Thousand_Years_%28Kyle_Landry%27s_Arr.%29.pdf) | [Christina Perri](https://en.wikipedia.org/wiki/Christina_Perri) | [YouTube](https://www.youtube.com/watch?v=ePisbKsPrKs)
+[Call Me Maybe](http://www.mediafire.com/file/6kg932c76dmrgfh/Carly_Rae_Jepsen_-_Call_Me_Maybe_%28Kyle_Landry%27s_Arr.%29.pdf) | [Carly Rae Jepsen](https://en.wikipedia.org/wiki/Carly_Rae_Jepsen) | [YouTube](https://www.youtube.com/watch?v=SKsVwOm-cYg)
 **Misc.** | |
 [I Dreamed a Dream](http://www.mediafire.com/view/20n2wa3447s0mnn/I_Dreamed_a_Dream_-_Full_Score.pdf) | [Les Misérables](http://en.wikipedia.org/wiki/Les_Mis%C3%A9rables_%28musical%29) | [YouTube](https://www.youtube.com/watch?v=0Wlrv-Pc8ko)
 [Game of Thrones Theme](http://www.mediafire.com/download/4j43a0s338e1hnh/GOT.zip) | [Game of Thrones](http://en.wikipedia.org/wiki/Game_of_Thrones) | [YouTube](https://www.youtube.com/watch?v=1kBWtd4lujk)
