@@ -59,6 +59,11 @@ Sheet | From | YouTube
 [Still Alive](http://www.mediafire.com/file/72xby8gzjk8zryk/Portal_-_Still_Alive_%28Kyle_Landry%27s_Arr.%29.pdf) | [Portal](https://en.wikipedia.org/wiki/Portal_(video_game)) | [YouTube](https://www.youtube.com/watch?v=h4rV2h6nzGg)
 [Spider Dance](http://www.mediafire.com/file/76itgazcvsz1dys/Undertale_-_Spider_Dance_%28Kyle_Landry%27s_Arr.%29.pdf) | [Undertale](http://undertale.com/) | [YouTube](https://www.youtube.com/watch?v=Ljf3tZGxaJM)
 [Fear Not This Night](http://www.mediafire.com/file/1cfhiv57rcq0j6e/KL_FearNotThisNight_V2.1.pdf) | [Guild Wars 2](https://en.wikipedia.org/wiki/Guild_Wars_2) | [YouTube](https://www.youtube.com/watch?v=8OM1SN7ebek)
+[One Winged Angel](http://www.mediafire.com/file/kaq4cvy7ek9c67s/Final_Fantasy_VII_-_One_Winged_Angel_%28Kyle_Landry%27s_Arr.%29.pdf) | [Final Fantasy VII](https://en.wikipedia.org/wiki/Final_Fantasy_VII) | [YouTube](https://youtu.be/KY-Zmddcs6Q?t=14m)
+[Kingdom Hearts Medley](http://www.mediafire.com/file/m2v2j4r0exesy8s/Kingdom_Hearts_Medley_%28Kyle_Landry%27s_Arr.%29.pdf) | [Kingdom Hearts](http://en.wikipedia.org/wiki/Kingdom_Hearts) | [YouTube](https://youtu.be/dZf4HsABBME)
+[Gerudo Valley](http://www.mediafire.com/file/ar41w04a4dhc2jx/Legend_of_Zelda_Ocarina_of_Time_-_Gerudo_Valley_%28Kyle_Landry%27s_Arr.%29.pdf) | [The Legend of Zelda: Ocarina of Time](http://en.wikipedia.org/wiki/The_Legend_of_Zelda:_Ocarina_of_Time) | [YouTube](https://youtu.be/QkC6mZa9Jrc)
+[Tetris Main Theme](http://www.mediafire.com/file/iigcighwjwg3g3j/Tetris_-_Main_Theme_%28Korobeiniki%29_%28Kyle_Landry%27s_Arr.%29.pdf) | [Tetris](https://en.wikipedia.org/wiki/Tetris) | [YouTube](https://youtu.be/0Z_LNgzc-e0)
+[Asgore](http://www.mediafire.com/file/s22a7o8k7w6cxtn/Undertale_-_Asgore_%28Kyle_Landry%27s_Arr.%29.pdf) | [Undertale](http://undertale.com/) | [YouTube](https://youtu.be/ZrLi-YLGVnk)
 **Anime** | |
 [Anata Ga Ita Mori](http://www.mediafire.com/view/l01l5oo3hm3nyxl/Anata_Ga_Ita_Mori_-_Full_Score.pdf) | [Fate/stay night](http://en.wikipedia.org/wiki/Fate/stay_night) | [YouTube](https://www.youtube.com/watch?v=YzrrnLN3tF8)
 [Crossing field](http://www.mediafire.com/view/8z8etxv2n5pn38w/Crossing_Field_-_Full_Score.pdf) | [Sword Art Online](http://www.swordart-onlineusa.com/) | [YouTube](https://www.youtube.com/watch?v=kGeQTdl7P1Q) 
