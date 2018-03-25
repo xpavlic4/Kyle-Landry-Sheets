@@ -158,6 +158,8 @@ Sheet | From | YouTube
 [Pearl Harbor Medley](http://www.mediafire.com/file/coduyub10rj0tzz/Pearl_Harbour_-_Medley_%28Kyle_Landry%27s_Arr.%29.pdf) | [Pearl Harbor](https://en.wikipedia.org/wiki/Pearl_Harbor_(film)) | [YouTube](https://www.youtube.com/watch?v=QiiSFFg68TU)
 [My Heart Will Go On](http://www.mediafire.com/file/lab6r5mktb9qc3g/Titanic_-_My_Heart_Will_Go_On_%28Kyle_Landry%27s_2nd_Arr.%29_%28Part_1%29.pdf) | [Titanic](https://en.wikipedia.org/wiki/Titanic_(1997_film)) | [YouTube](https://www.youtube.com/watch?v=Fr3tWZlWXOo) - Part 1 of 3, unfinished (goes until 3:44)
 [My Heart Will Go On](http://www.mediafire.com/file/scnte9dq0n79vph/Titanic_-_My_Heart_Will_Go_On_%28Kyle_Landry%27s_2nd_Arr.%29_%28Part_2%29.pdf) | [Titanic](https://en.wikipedia.org/wiki/Titanic_(1997_film)) | [YouTube](https://www.youtube.com/watch?v=Fr3tWZlWXOo) - Part 3 of 3, unfinished (starts at 5:15)
+[Somewhere Out There](http://www.mediafire.com/file/99arfjqoirbtw47/An_American_Tail_-_Somewhere_Out_There_%28Kyle_Landry%27s_Arr.%29.pdf) | [An American Tail](https://en.wikipedia.org/wiki/An_American_Tail) | [YouTube](https://youtu.be/8c0eHt5YmNg)
+[Mia & Sebastian's Theme (WIP)](http://www.mediafire.com/file/uwhbvab922espfs/La_La_Land_-_Mia_%26_Sebastians%27_Theme_%28WIP%29_%28Kyle_Landry%27s_Arr.%29.pdf) | [La La Land](https://en.wikipedia.org/wiki/La_La_Land_(film)) | [YouTube](https://youtu.be/AX1S9sewz9I)
 **Pop Songs** | | 
 [Apologize Variations](http://www.mediafire.com/view/0b843od3znmjnvx/Apologize.pdf) | [OneRepublic](http://en.wikipedia.org/wiki/OneRepublic) | [YouTube](https://www.youtube.com/watch?v=IAVIZe5lKow)
 [Scarborough Fair](http://www.mediafire.com/view/lq7jzrqn1h99lcp/KL_Scarborough_Fair_Piano_Solo-_Full_Score_1.13_%281%29.pdf) | [Simon and Garfunkel](http://en.wikipedia.org/wiki/Simon_%26_Garfunkel) | [YouTube](https://www.youtube.com/watch?v=2OMFkTM5Mrs)
@@ -193,6 +195,7 @@ Sheet | From | YouTube
 [Christmas Medley Special 2009](http://www.mediafire.com/view/91mgaoznqj3l5jc/Christmas_Medley_Special.pdf) | [Christmas Music](http://en.wikipedia.org/wiki/Christmas_music) | [YouTube](https://www.youtube.com/watch?v=GGBzsRFoCgA)
 [Ave Maria](http://www.mediafire.com/view/c66b0gg9oznjr7a/Ave_Maria.pdf) | [Franz Schubert](http://en.wikipedia.org/wiki/Franz_Schubert) | [YouTube](https://www.youtube.com/watch?v=3yD3VDPvCj0)
 [The Rains of Castamere](http://www.mediafire.com/file/lxi9to751pv264r/Game_of_Thrones_-_The_Rains_of_Castamere_%28Kyle_Landry%27s_Arr.%29.pdf) | [Game of Thrones](https://en.wikipedia.org/wiki/Game_of_Thrones) | [YouTube](https://www.youtube.com/watch?v=uoVp_P0FCCw)
+[Light of the Seven](http://www.mediafire.com/file/3okbmjsu842y8fi/Game_of_thrones_-_Light_of_the_Seven_%28Kyle_Landry%27s_Arr.%29.pdf) | [Game of Thrones](https://en.wikipedia.org/wiki/Game_of_Thrones) | [YouTube](https://youtu.be/eOzTGVxvYdM)
 
 ---
 
