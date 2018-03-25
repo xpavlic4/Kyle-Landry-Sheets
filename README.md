@@ -84,6 +84,8 @@ Sheet | From | YouTube
 [Fairy Tail Theme](http://www.mediafire.com/view/xk4jkm2o1m8q0n7/KL_FairyTail_Theme.pdf) | [Fairy Tail](https://en.wikipedia.org/wiki/Fairy_Tail) | [YouTube](http://youtu.be/dIqpUqwlWN4)
 [Fukai Mori](http://www.mediafire.com/file/hfeb2aaql1u8n19/Inuyasha_-_Fukai_Mori_%28Kyle_Landry%27s_Arr.%29.pdf) | [Inuyasha](http://en.wikipedia.org/wiki/Inuyasha) | [YouTube](https://www.youtube.com/watch?v=iTxNSkrKgmI)
 [Sadness and Sorrow & Orochimaru's Theme](http://www.mediafire.com/file/rf7d5vbqog5a2va/Naruto_-_Sadness_and_Sorrow_%28Kyle_Landry%27s_Arr.%29.pdf) | [Naruto](http://en.wikipedia.org/wiki/Naruto) | [YouTube](https://www.youtube.com/watch?v=LwwEjYAJBTg)
+[Elegy for Rem](http://www.mediafire.com/file/zm5e67s84xpp4fl/Re_-_Zero_Elegy_for_Rem_%28Kyle_Landry%27s_Arr.%29.pdf) | [Re:Zero](http://rezero.wikia.com/wiki/Re:Zero_Wiki) | [YouTube](https://youtu.be/yuWAunTlIq4)
+[Spice](http://www.mediafire.com/file/91832bc1a29j7uw/Shokugeki_no_Soum_-_Spice_%28Kyle_Landry%27s_Arr.%29.pdf) | [Shokugeki no Soma](https://en.wikipedia.org/wiki/Food_Wars!:_Shokugeki_no_Soma) | [YouTube](https://youtu.be/iNPSlgdqKlI)
 **Disney and Pixar** | | 
 [Beauty and the Beast](http://www.mediafire.com/view/bf33mi737ehqsuk/Beauty_and_the_Beast.pdf) | [Beauty and the Beast](http://en.wikipedia.org/wiki/Beauty_and_the_Beast_%281991_film%29) | [YouTube](https://www.youtube.com/watch?v=AyhPxrchntM)
 [Something There](http://www.mediafire.com/view/zpcqzelyrmoyne7/Something_There.pdf) | [Beauty and the Beast](http://en.wikipedia.org/wiki/Beauty_and_the_Beast_%281991_film%29) | [YouTube](https://www.youtube.com/watch?v=mfhM2y1aV48)
