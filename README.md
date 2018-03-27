@@ -16,6 +16,7 @@ Sheet | From | YouTube
 **Games** | |
 [Scars of time](http://www.mediafire.com/view/w5m2t88256v2jw0/KL_Chrono_Cross_Scars_Of_Time.pdf) | [Chrono Cross](http://en.wikipedia.org/wiki/Chrono_Cross) | [YouTube](https://www.youtube.com/watch?v=x49UCaNqhKw)
 [Yearnings of the Wind](http://www.mediafire.com/view/babfq8q5730rman/KL_Yearnings_Of_The_Wind_AD.pdf) | [Chrono Trigger](http://en.wikipedia.org/wiki/Chrono_Trigger) | [YouTube](https://www.youtube.com/watch?v=V1pgSY48mgE)
+[600 AD (Steinway ver.)](http://www.mediafire.com/file/5ju4bam8m3ia1ck/Chrono_Trigger_-_600_AD_%28Kyle_Landry%27s_Arr.%29.pdf) | [Chrono Trigger](http://en.wikipedia.org/wiki/Chrono_Trigger) | [YouTube](https://youtu.be/V1pgSY48mgE)
 [Dearly Beloved 2008](http://www.mediafire.com/view/d4lcxkh34ebhv54/KL_Dearly_Beloved_2008.pdf) | [Kingdom Hearts](http://en.wikipedia.org/wiki/Kingdom_Hearts) | [YouTube](https://www.youtube.com/watch?v=a4-sqvJRm5U)
 [Dearly Beloved 2009](http://www.mediafire.com/view/zcd84jni1nfg4ps/KL_Dearly_Beloved_2009.pdf) | [Kingdom Hearts](http://en.wikipedia.org/wiki/Kingdom_Hearts) | [YouTube](https://www.youtube.com/watch?v=-FgYwY5F5P4)
 [Dearly Beloved 2010](http://www.mediafire.com/view/a3n19ezdnzaszw9/KL_KH_Dearly_Beloved_2010.pdf) | [Kingdom Hearts](http://en.wikipedia.org/wiki/Kingdom_Hearts) | [YouTube](https://www.youtube.com/watch?v=eQ0E3dsHRV4)
