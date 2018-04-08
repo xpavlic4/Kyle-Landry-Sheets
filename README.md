@@ -49,7 +49,6 @@ Sheet | From | YouTube
 [Rosalina's Observatory](http://www.mediafire.com/view/zudv55720m2k269/Rosalina&#39;s_Observatory_-_Full_Score.pdf) | [Super Mario Galaxy](http://en.wikipedia.org/wiki/Super_Mario_Galaxy) | [YouTube](https://www.youtube.com/watch?v=dd0vGfL4hgw)
 [Never Forget](http://www.mediafire.com/view/wjmrkggfu2dpalb/Never_Forget.pdf) | [Halo 3](http://en.wikipedia.org/wiki/Halo_3) | [YouTube](https://www.youtube.com/watch?v=ZJZrmEEbFxo)
 [Main Theme](http://www.mediafire.com/view/f6qmn54qaa4g0ju/Skyrim_Main_Theme.pdf) | [The Elder Scrolls V: Skyrim](http://en.wikipedia.org/wiki/The_Elder_Scrolls_V:_Skyrim) | [YouTube](https://www.youtube.com/watch?v=gkDCQcP89_Y)
-[Skyrim Medley](http://www.mediafire.com/view/abm0q2nss2lldpp/Skyrim_-_Medley.pdf) | [The Elder Scrolls V: Skyrim](http://en.wikipedia.org/wiki/The_Elder_Scrolls_V:_Skyrim) | [YouTube](https://youtu.be/2zFhagZlWJc)
 [The Streets of Whiterun](http://www.mediafire.com/download/u7pc2jox8f3shje/KL_Skyrim_Streets_Of_Whiterun.pdf) | [The Elder Scrolls V: Skyrim](http://en.wikipedia.org/wiki/The_Elder_Scrolls_V:_Skyrim) | [YouTube](http://youtu.be/9gVkUV_ANqA)
 [Summoner's Call](http://www.mediafire.com/view/844sl3u92z1o1y1/League_of_Legends_-_Summoner&#39;s_Call.pdf) | [League of Legends](http://en.wikipedia.org/wiki/League_of_Legends) | [YouTube](https://www.youtube.com/watch?v=86uO4rXgtJc)
 [His Theme](https://www.mediafire.com/?psm8oxysrox22d8) | [Undertale](http://undertale.com/) | [YouTube](https://www.youtube.com/watch?v=XI3T3G9GJRw)
