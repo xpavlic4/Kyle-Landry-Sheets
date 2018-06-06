@@ -72,7 +72,7 @@ Sheet | From | YouTube
 [Warm Piano Arrange](http://www.mediafire.com/view/84dfna4cb3pk1bv/KL_Warm_Piano_Arrange.pdf) | [Clannad](http://en.wikipedia.org/wiki/Clannad_%28visual_novel%29) | [YouTube](https://youtu.be/sw1mlIwfACk) - Edited by Jenna (Feb 14th)
 [Every Heart](http://www.mediafire.com/view/yjq744f2n7httnc/KL_Every_Heart.pdf) | [Inuyasha](http://en.wikipedia.org/wiki/Inuyasha) | [YouTube](https://www.youtube.com/watch?v=IwTbRTIK2mQ)
 [Hinata vs Neiji](http://www.mediafire.com/view/hg3v8ju7hsms6py/KL_Hinata_VS_Neji.pdf) | [Naruto](http://en.wikipedia.org/wiki/Naruto) | [YouTube](https://www.youtube.com/watch?v=X0qI66ix-QY)
-[Alone](http://www.mediafire.com/view/486r820lyl8j16u/KL_Naruto_Alone.pdf) | [Naruto](http://en.wikipedia.org/wiki/Naruto) | [YouTube](https://www.youtube.com/watch?v=irEIwQBGKpg)
+[Alone](http://www.mediafire.com/file/w12a3urjgj3a3fg/Alone.pdf) | [Naruto](http://en.wikipedia.org/wiki/Naruto) | [YouTube](https://www.youtube.com/watch?v=irEIwQBGKpg)
 [Naruto Medley Special](http://www.mediafire.com/view/2f86h1poa1t7ie9/KL_Naturo_Medley_Special.pdf) | [Naruto](http://en.wikipedia.org/wiki/Naruto) | [YouTube](https://www.youtube.com/watch?v=ntkRQCh8c_Y)
 [Opening Theme](http://www.mediafire.com/view/i5j77d7d3mbctah/KL_Kimi_Ni_Todoke_OP.pdf) | [Kimi ni Todoke](http://en.wikipedia.org/wiki/Kimi_ni_Todoke) | [YouTube](https://www.youtube.com/watch?v=QQUiBgURdDM)
 [Katamoi (Ending Theme)](http://www.mediafire.com/view/3inwa61n44wbvlw/KL_Kataomoi.pdf) | [Kimi ni Todoke](http://en.wikipedia.org/wiki/Kimi_ni_Todoke) | [YouTube](https://www.youtube.com/watch?v=Vurr59c29Wo)
@@ -204,3 +204,4 @@ Sheet | From | YouTube
 * Ternaldius
 * Nadav Zeira
 * Nickelodius
+* Diluent67
