@@ -16,6 +16,7 @@ Sheet | From | YouTube
 **Games** | |
 [Scars of time](http://www.mediafire.com/view/w5m2t88256v2jw0/KL_Chrono_Cross_Scars_Of_Time.pdf) | [Chrono Cross](http://en.wikipedia.org/wiki/Chrono_Cross) | [YouTube](https://www.youtube.com/watch?v=x49UCaNqhKw)
 [Yearnings of the Wind](http://www.mediafire.com/view/babfq8q5730rman/KL_Yearnings_Of_The_Wind_AD.pdf) | [Chrono Trigger](http://en.wikipedia.org/wiki/Chrono_Trigger) | [YouTube](https://www.youtube.com/watch?v=V1pgSY48mgE)
+[600 AD (Steinway ver.)](http://www.mediafire.com/file/5ju4bam8m3ia1ck/Chrono_Trigger_-_600_AD_%28Kyle_Landry%27s_Arr.%29.pdf) | [Chrono Trigger](http://en.wikipedia.org/wiki/Chrono_Trigger) | [YouTube](https://youtu.be/V1pgSY48mgE)
 [Dearly Beloved 2008](http://www.mediafire.com/view/d4lcxkh34ebhv54/KL_Dearly_Beloved_2008.pdf) | [Kingdom Hearts](http://en.wikipedia.org/wiki/Kingdom_Hearts) | [YouTube](https://www.youtube.com/watch?v=a4-sqvJRm5U)
 [Dearly Beloved 2009](http://www.mediafire.com/view/zcd84jni1nfg4ps/KL_Dearly_Beloved_2009.pdf) | [Kingdom Hearts](http://en.wikipedia.org/wiki/Kingdom_Hearts) | [YouTube](https://www.youtube.com/watch?v=-FgYwY5F5P4)
 [Dearly Beloved 2010](http://www.mediafire.com/view/a3n19ezdnzaszw9/KL_KH_Dearly_Beloved_2010.pdf) | [Kingdom Hearts](http://en.wikipedia.org/wiki/Kingdom_Hearts) | [YouTube](https://www.youtube.com/watch?v=eQ0E3dsHRV4)
@@ -48,7 +49,6 @@ Sheet | From | YouTube
 [Rosalina's Observatory](http://www.mediafire.com/view/zudv55720m2k269/Rosalina&#39;s_Observatory_-_Full_Score.pdf) | [Super Mario Galaxy](http://en.wikipedia.org/wiki/Super_Mario_Galaxy) | [YouTube](https://www.youtube.com/watch?v=dd0vGfL4hgw)
 [Never Forget](http://www.mediafire.com/view/wjmrkggfu2dpalb/Never_Forget.pdf) | [Halo 3](http://en.wikipedia.org/wiki/Halo_3) | [YouTube](https://www.youtube.com/watch?v=ZJZrmEEbFxo)
 [Main Theme](http://www.mediafire.com/view/f6qmn54qaa4g0ju/Skyrim_Main_Theme.pdf) | [The Elder Scrolls V: Skyrim](http://en.wikipedia.org/wiki/The_Elder_Scrolls_V:_Skyrim) | [YouTube](https://www.youtube.com/watch?v=gkDCQcP89_Y)
-[Skyrim Medley](http://www.mediafire.com/view/abm0q2nss2lldpp/Skyrim_-_Medley.pdf) | [The Elder Scrolls V: Skyrim](http://en.wikipedia.org/wiki/The_Elder_Scrolls_V:_Skyrim) | [YouTube](https://youtu.be/2zFhagZlWJc)
 [The Streets of Whiterun](http://www.mediafire.com/download/u7pc2jox8f3shje/KL_Skyrim_Streets_Of_Whiterun.pdf) | [The Elder Scrolls V: Skyrim](http://en.wikipedia.org/wiki/The_Elder_Scrolls_V:_Skyrim) | [YouTube](http://youtu.be/9gVkUV_ANqA)
 [Summoner's Call](http://www.mediafire.com/view/844sl3u92z1o1y1/League_of_Legends_-_Summoner&#39;s_Call.pdf) | [League of Legends](http://en.wikipedia.org/wiki/League_of_Legends) | [YouTube](https://www.youtube.com/watch?v=86uO4rXgtJc)
 [His Theme](https://www.mediafire.com/?psm8oxysrox22d8) | [Undertale](http://undertale.com/) | [YouTube](https://www.youtube.com/watch?v=XI3T3G9GJRw)
@@ -58,6 +58,12 @@ Sheet | From | YouTube
 [Fairy Fountain](http://www.mediafire.com/file/8f3caef6cqj596x/Legend_of_Zelda_Ocarina_of_Time_-_Fairy_Fountain_%28Kyle_Landry%27s_Arr.%29.pdf) | [The Legend of Zelda: Ocarina of Time](http://en.wikipedia.org/wiki/The_Legend_of_Zelda:_Ocarina_of_Time) | [YouTube](https://www.youtube.com/watch?v=Djd9DJcnvuI)
 [Still Alive](http://www.mediafire.com/file/72xby8gzjk8zryk/Portal_-_Still_Alive_%28Kyle_Landry%27s_Arr.%29.pdf) | [Portal](https://en.wikipedia.org/wiki/Portal_(video_game)) | [YouTube](https://www.youtube.com/watch?v=h4rV2h6nzGg)
 [Spider Dance](http://www.mediafire.com/file/76itgazcvsz1dys/Undertale_-_Spider_Dance_%28Kyle_Landry%27s_Arr.%29.pdf) | [Undertale](http://undertale.com/) | [YouTube](https://www.youtube.com/watch?v=Ljf3tZGxaJM)
+[Fear Not This Night](http://www.mediafire.com/file/1cfhiv57rcq0j6e/KL_FearNotThisNight_V2.1.pdf) | [Guild Wars 2](https://en.wikipedia.org/wiki/Guild_Wars_2) | [YouTube](https://www.youtube.com/watch?v=8OM1SN7ebek)
+[One Winged Angel](http://www.mediafire.com/file/kaq4cvy7ek9c67s/Final_Fantasy_VII_-_One_Winged_Angel_%28Kyle_Landry%27s_Arr.%29.pdf) | [Final Fantasy VII](https://en.wikipedia.org/wiki/Final_Fantasy_VII) | [YouTube](https://youtu.be/KY-Zmddcs6Q?t=14m)
+[Kingdom Hearts Medley](http://www.mediafire.com/file/m2v2j4r0exesy8s/Kingdom_Hearts_Medley_%28Kyle_Landry%27s_Arr.%29.pdf) | [Kingdom Hearts](http://en.wikipedia.org/wiki/Kingdom_Hearts) | [YouTube](https://youtu.be/dZf4HsABBME)
+[Gerudo Valley](http://www.mediafire.com/file/ar41w04a4dhc2jx/Legend_of_Zelda_Ocarina_of_Time_-_Gerudo_Valley_%28Kyle_Landry%27s_Arr.%29.pdf) | [The Legend of Zelda: Ocarina of Time](http://en.wikipedia.org/wiki/The_Legend_of_Zelda:_Ocarina_of_Time) | [YouTube](https://youtu.be/QkC6mZa9Jrc)
+[Tetris Main Theme](http://www.mediafire.com/file/iigcighwjwg3g3j/Tetris_-_Main_Theme_%28Korobeiniki%29_%28Kyle_Landry%27s_Arr.%29.pdf) | [Tetris](https://en.wikipedia.org/wiki/Tetris) | [YouTube](https://youtu.be/0Z_LNgzc-e0)
+[Asgore](http://www.mediafire.com/file/s22a7o8k7w6cxtn/Undertale_-_Asgore_%28Kyle_Landry%27s_Arr.%29.pdf) | [Undertale](http://undertale.com/) | [YouTube](https://youtu.be/ZrLi-YLGVnk)
 **Anime** | |
 [Anata Ga Ita Mori](http://www.mediafire.com/view/l01l5oo3hm3nyxl/Anata_Ga_Ita_Mori_-_Full_Score.pdf) | [Fate/stay night](http://en.wikipedia.org/wiki/Fate/stay_night) | [YouTube](https://www.youtube.com/watch?v=YzrrnLN3tF8)
 [Crossing field](http://www.mediafire.com/view/8z8etxv2n5pn38w/Crossing_Field_-_Full_Score.pdf) | [Sword Art Online](http://www.swordart-onlineusa.com/) | [YouTube](https://www.youtube.com/watch?v=kGeQTdl7P1Q) 
@@ -66,7 +72,7 @@ Sheet | From | YouTube
 [Warm Piano Arrange](http://www.mediafire.com/view/84dfna4cb3pk1bv/KL_Warm_Piano_Arrange.pdf) | [Clannad](http://en.wikipedia.org/wiki/Clannad_%28visual_novel%29) | [YouTube](https://youtu.be/sw1mlIwfACk) - Edited by Jenna (Feb 14th)
 [Every Heart](http://www.mediafire.com/view/yjq744f2n7httnc/KL_Every_Heart.pdf) | [Inuyasha](http://en.wikipedia.org/wiki/Inuyasha) | [YouTube](https://www.youtube.com/watch?v=IwTbRTIK2mQ)
 [Hinata vs Neiji](http://www.mediafire.com/view/hg3v8ju7hsms6py/KL_Hinata_VS_Neji.pdf) | [Naruto](http://en.wikipedia.org/wiki/Naruto) | [YouTube](https://www.youtube.com/watch?v=X0qI66ix-QY)
-[Alone](http://www.mediafire.com/view/486r820lyl8j16u/KL_Naruto_Alone.pdf) | [Naruto](http://en.wikipedia.org/wiki/Naruto) | [YouTube](https://www.youtube.com/watch?v=irEIwQBGKpg)
+[Alone](http://www.mediafire.com/file/w12a3urjgj3a3fg/Alone.pdf) | [Naruto](http://en.wikipedia.org/wiki/Naruto) | [YouTube](https://www.youtube.com/watch?v=irEIwQBGKpg)
 [Naruto Medley Special](http://www.mediafire.com/view/2f86h1poa1t7ie9/KL_Naturo_Medley_Special.pdf) | [Naruto](http://en.wikipedia.org/wiki/Naruto) | [YouTube](https://www.youtube.com/watch?v=ntkRQCh8c_Y)
 [Opening Theme](http://www.mediafire.com/view/i5j77d7d3mbctah/KL_Kimi_Ni_Todoke_OP.pdf) | [Kimi ni Todoke](http://en.wikipedia.org/wiki/Kimi_ni_Todoke) | [YouTube](https://www.youtube.com/watch?v=QQUiBgURdDM)
 [Katamoi (Ending Theme)](http://www.mediafire.com/view/3inwa61n44wbvlw/KL_Kataomoi.pdf) | [Kimi ni Todoke](http://en.wikipedia.org/wiki/Kimi_ni_Todoke) | [YouTube](https://www.youtube.com/watch?v=Vurr59c29Wo)
@@ -78,6 +84,8 @@ Sheet | From | YouTube
 [Fairy Tail Theme](http://www.mediafire.com/view/xk4jkm2o1m8q0n7/KL_FairyTail_Theme.pdf) | [Fairy Tail](https://en.wikipedia.org/wiki/Fairy_Tail) | [YouTube](http://youtu.be/dIqpUqwlWN4)
 [Fukai Mori](http://www.mediafire.com/file/hfeb2aaql1u8n19/Inuyasha_-_Fukai_Mori_%28Kyle_Landry%27s_Arr.%29.pdf) | [Inuyasha](http://en.wikipedia.org/wiki/Inuyasha) | [YouTube](https://www.youtube.com/watch?v=iTxNSkrKgmI)
 [Sadness and Sorrow & Orochimaru's Theme](http://www.mediafire.com/file/rf7d5vbqog5a2va/Naruto_-_Sadness_and_Sorrow_%28Kyle_Landry%27s_Arr.%29.pdf) | [Naruto](http://en.wikipedia.org/wiki/Naruto) | [YouTube](https://www.youtube.com/watch?v=LwwEjYAJBTg)
+[Elegy for Rem](http://www.mediafire.com/file/zm5e67s84xpp4fl/Re_-_Zero_Elegy_for_Rem_%28Kyle_Landry%27s_Arr.%29.pdf) | [Re:Zero](http://rezero.wikia.com/wiki/Re:Zero_Wiki) | [YouTube](https://youtu.be/yuWAunTlIq4)
+[Spice](http://www.mediafire.com/file/91832bc1a29j7uw/Shokugeki_no_Soum_-_Spice_%28Kyle_Landry%27s_Arr.%29.pdf) | [Shokugeki no Soma](https://en.wikipedia.org/wiki/Food_Wars!:_Shokugeki_no_Soma) | [YouTube](https://youtu.be/iNPSlgdqKlI)
 **Disney and Pixar** | | 
 [Beauty and the Beast](http://www.mediafire.com/view/bf33mi737ehqsuk/Beauty_and_the_Beast.pdf) | [Beauty and the Beast](http://en.wikipedia.org/wiki/Beauty_and_the_Beast_%281991_film%29) | [YouTube](https://www.youtube.com/watch?v=AyhPxrchntM)
 [Something There](http://www.mediafire.com/view/zpcqzelyrmoyne7/Something_There.pdf) | [Beauty and the Beast](http://en.wikipedia.org/wiki/Beauty_and_the_Beast_%281991_film%29) | [YouTube](https://www.youtube.com/watch?v=mfhM2y1aV48)
@@ -150,6 +158,8 @@ Sheet | From | YouTube
 [Pearl Harbor Medley](http://www.mediafire.com/file/coduyub10rj0tzz/Pearl_Harbour_-_Medley_%28Kyle_Landry%27s_Arr.%29.pdf) | [Pearl Harbor](https://en.wikipedia.org/wiki/Pearl_Harbor_(film)) | [YouTube](https://www.youtube.com/watch?v=QiiSFFg68TU)
 [My Heart Will Go On](http://www.mediafire.com/file/lab6r5mktb9qc3g/Titanic_-_My_Heart_Will_Go_On_%28Kyle_Landry%27s_2nd_Arr.%29_%28Part_1%29.pdf) | [Titanic](https://en.wikipedia.org/wiki/Titanic_(1997_film)) | [YouTube](https://www.youtube.com/watch?v=Fr3tWZlWXOo) - Part 1 of 3, unfinished (goes until 3:44)
 [My Heart Will Go On](http://www.mediafire.com/file/scnte9dq0n79vph/Titanic_-_My_Heart_Will_Go_On_%28Kyle_Landry%27s_2nd_Arr.%29_%28Part_2%29.pdf) | [Titanic](https://en.wikipedia.org/wiki/Titanic_(1997_film)) | [YouTube](https://www.youtube.com/watch?v=Fr3tWZlWXOo) - Part 3 of 3, unfinished (starts at 5:15)
+[Somewhere Out There](http://www.mediafire.com/file/99arfjqoirbtw47/An_American_Tail_-_Somewhere_Out_There_%28Kyle_Landry%27s_Arr.%29.pdf) | [An American Tail](https://en.wikipedia.org/wiki/An_American_Tail) | [YouTube](https://youtu.be/8c0eHt5YmNg)
+[Mia & Sebastian's Theme (WIP)](http://www.mediafire.com/file/uwhbvab922espfs/La_La_Land_-_Mia_%26_Sebastians%27_Theme_%28WIP%29_%28Kyle_Landry%27s_Arr.%29.pdf) | [La La Land](https://en.wikipedia.org/wiki/La_La_Land_(film)) | [YouTube](https://youtu.be/AX1S9sewz9I)
 **Pop Songs** | | 
 [Apologize Variations](http://www.mediafire.com/view/0b843od3znmjnvx/Apologize.pdf) | [OneRepublic](http://en.wikipedia.org/wiki/OneRepublic) | [YouTube](https://www.youtube.com/watch?v=IAVIZe5lKow)
 [Scarborough Fair](http://www.mediafire.com/view/lq7jzrqn1h99lcp/KL_Scarborough_Fair_Piano_Solo-_Full_Score_1.13_%281%29.pdf) | [Simon and Garfunkel](http://en.wikipedia.org/wiki/Simon_%26_Garfunkel) | [YouTube](https://www.youtube.com/watch?v=2OMFkTM5Mrs)
@@ -185,6 +195,7 @@ Sheet | From | YouTube
 [Christmas Medley Special 2009](http://www.mediafire.com/view/91mgaoznqj3l5jc/Christmas_Medley_Special.pdf) | [Christmas Music](http://en.wikipedia.org/wiki/Christmas_music) | [YouTube](https://www.youtube.com/watch?v=GGBzsRFoCgA)
 [Ave Maria](http://www.mediafire.com/view/c66b0gg9oznjr7a/Ave_Maria.pdf) | [Franz Schubert](http://en.wikipedia.org/wiki/Franz_Schubert) | [YouTube](https://www.youtube.com/watch?v=3yD3VDPvCj0)
 [The Rains of Castamere](http://www.mediafire.com/file/lxi9to751pv264r/Game_of_Thrones_-_The_Rains_of_Castamere_%28Kyle_Landry%27s_Arr.%29.pdf) | [Game of Thrones](https://en.wikipedia.org/wiki/Game_of_Thrones) | [YouTube](https://www.youtube.com/watch?v=uoVp_P0FCCw)
+[Light of the Seven](http://www.mediafire.com/file/3okbmjsu842y8fi/Game_of_thrones_-_Light_of_the_Seven_%28Kyle_Landry%27s_Arr.%29.pdf) | [Game of Thrones](https://en.wikipedia.org/wiki/Game_of_Thrones) | [YouTube](https://youtu.be/eOzTGVxvYdM)
 
 ---
 
@@ -192,3 +203,5 @@ Sheet | From | YouTube
 
 * Ternaldius
 * Nadav Zeira
+* Nickelodius
+* Diluent67
